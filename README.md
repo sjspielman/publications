@@ -1,4 +1,4 @@
 # publications
 All publications to date by Stephanie J. Spielman in PDF
 
-Last updated 7/28/2019
+Last updated Nov 2021.
